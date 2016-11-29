@@ -1,3 +1,1 @@
-# hello-world
-hello-world
-zdrasti:)
+lala kako , cingara mangara taktika
